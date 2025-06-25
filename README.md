@@ -1,7 +1,7 @@
-Hello this is M.Emad //
+Hello this is M.Emad 
 
 
-Email: spmeeakabg@gmail.com //
+Email: spmeeakabg@gmail.com 
 
 
-I'll respond as soon as posible //
+I'll respond as soon as posible 
